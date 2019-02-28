@@ -1,4 +1,4 @@
-# Jonathans Abivorbereitung 2019
+# Niels' Abivorbereitung 2019
 
 ## Nützliche Weblinks
 
